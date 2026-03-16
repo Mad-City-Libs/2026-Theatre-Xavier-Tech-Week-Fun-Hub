@@ -1,1 +1,1 @@
-Welcome to the 2026 Theatre Xavier Tech Week Fun Hub! This site brings together interactive tools, behind‑the‑scenes tech insights, and creative showcases from our annual celebration of innovation in theatre. Explore projects, try demos, and enjoy the spirit of Tech Week!
+🎭 Welcome to the 2026 Theatre Xavier Tech Week Fun Hub! 🚀 Explore interactive tools, creative showcases, and behind‑the‑scenes tech magic from our annual celebration of innovation in theatre. 💡 Dive into projects, try demos, and enjoy the excitement of Tech Week! 🎉
